@@ -10,7 +10,7 @@ Maybe some even smell... 👃🤢 Only kidding (sorta 😅)
 
 He makes the choice easy 👉  YES ✔️ or YEAH, WE'LL KEEP LOOKING ❌
 
-**Summer 2022 Self-Funded Internship by Global Career Accelator's (GCA).**
+**Summer 2022 Self-Funded Internship with Global Career Accelator's (GCA).**
 
 -8 Total Projects
 -Countless Out of Class Assignments and Videos
